@@ -1,0 +1,2 @@
+# http-belchbuzz.io
+Belch Buzz is a website that was started by myself (Brandon Belcher) to help inspire entrepreneurs around the world. My mission is to show you that there’s much more to life than just working a dead in job for the rest of your life.  I will also show you the lifestyle of the rich &amp; famous, along with your normal every day people that just became self made millionaires &amp; billionaires. 
